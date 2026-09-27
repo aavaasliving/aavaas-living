@@ -1,2 +1,2 @@
 # aavaas-living
-aavaas living pg mukherjee nagar 
+aavaas living pg mukherjee nagar   
